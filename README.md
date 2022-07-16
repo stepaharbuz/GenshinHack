@@ -1,1 +1,1 @@
-# GenshinHack
+# GenshinHack ( PASSWORD 2022)
